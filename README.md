@@ -10,4 +10,4 @@ Without a word, Ardi set his drink aside and wrapped an arm around Rizki's shoul
 
 Suddenly, Ardi shifted, turning Rizki to face him. His hands cupped Rizki's cheeks, thumbs stroking his soft skin. "You know, Kiek," Ardi murmured, his gaze burning into Rizki's. "I've been thinking…"
 
-Rizki's breath hitches as he waits for Ardi to continue, the anticipation building between them like a live wire.
+Rizki's breath hitches as he waits for Ardi to continue, the anticipation building between them like a live wire. dAMN
